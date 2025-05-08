@@ -1,2 +1,0 @@
-# bokep
-data gw
